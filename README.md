@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FlashyShades
+- 👋 Hi, I’m @Rikesh
 - 👀 I’m interested in ... animes/games
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... nothing
